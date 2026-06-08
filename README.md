@@ -1,0 +1,2 @@
+# Coryn
+Copia a crunchiroll
